@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Stabilizer71
+- 👀 I’m interested in NFTs, new ideas, hip hop music and extreme sports 
+- 🌱 I’m currently learning Digittal Marketing and about Cryptos , NFTs & Metaverse   
+- 💞️ I’m looking to collaborate on a NFT art project 
+- 📫 How to reach me on...> FB: Ioannis Stampoulis | IG: @iStampoulis | Twitter: @IStampoulis | LinkedIn: Ioannis Stampoulis
