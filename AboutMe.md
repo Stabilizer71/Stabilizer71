@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Stabilizer71
+- 👋 Hi, I’m @Stabilizer71 an ex-mariner
 - 👀 I’m interested in NFTs, new ideas, hip hop music and extreme sports 
 - 🌱 I’m currently learning Digittal Marketing and about Cryptos , NFTs & Metaverse   
 - 💞️ I’m looking to collaborate on a NFT art project 
